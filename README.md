@@ -1,1 +1,0 @@
-# Tugas_Pendahuluan_Logika_Pemrograman
